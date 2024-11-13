@@ -1,7 +1,7 @@
 ### Minecraft 1.21.44 APK Descargar Mediafire Gratis Última versión 2024
 Minecraft es un juego de aventura y construcción que ha capturado la imaginación de millones de jugadores en todo el mundo. La versión Minecraft 1.21.44 APK para Android ofrece una actualización emocionante con mejoras, nuevos elementos y mayor estabilidad para los jugadores móviles. Esta última versión incluye nuevas funciones, optimización del rendimiento y corrección de errores, lo que garantiza una experiencia de juego más fluida y envolvente.
 
-**👩‍💻🧙 Descargar: [Minecraft 1.21.44 APK](https://modilimitado.io/minecraft-apk)**
+**👩‍💻🧙 Descargar: [Minecraft 1.21.44 APK](https://minecraft-apk.modilimitado.io)**
 
 ### Novedades en Minecraft 1.21.44 APK
 La actualización Minecraft 1.21.44 trae diversas mejoras y nuevas características que enriquecen la experiencia de juego. A continuación, se detallan las principales novedades:
